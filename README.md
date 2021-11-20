@@ -1,0 +1,6 @@
+- Hi, I’m @gracieclaire
+-I want to learn to code. 
+-I have no idea what I am doing. I want to know what to do. help :) pls 
+- 💞️ I just want to learn how to code 
+- 📫 wgracie200@gmail.com if you think you could help someone who knows absoultey 0 about coding
+- I have 2 dogs, love chemistry, biology, and suturing. 
